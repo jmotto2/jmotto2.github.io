@@ -5,6 +5,8 @@ Free for personal and commercial use under the CCA 3.0 license (html5up.net/lice
 
 Personal Website for Jonah Otto. 
 
+I am a 5th year astronomy student at TCU. 
+
 
 Credits:
 
